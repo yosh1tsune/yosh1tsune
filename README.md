@@ -1,4 +1,4 @@
-<img src="https://i.makeagif.com/media/11-06-2015/mbHUMO.gif" width="100%">
+<img src="https://i.giphy.com/media/WP84U8DeJNzG0/giphy.webp" width="100%">
 
 ### Wazzup guys? 👋
 
