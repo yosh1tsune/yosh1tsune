@@ -5,5 +5,5 @@
 🇧🇷<br>
 - 📄 [Portfolio](https://yosh1tsune.github.io/)
 - 💼 [LinkedIn](https://www.linkedin.com/in/bruno-silva-293036160)
-- 📫 [brunorsilva_@hotmail.com](brunorsilva_@hotmail.com)
+- 📫 <brunorsilva_@hotmail.com>
 
