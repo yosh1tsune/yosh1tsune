@@ -1,4 +1,4 @@
-<img src="https://tenor.com/vfyN.gif" width="100%">
+<img src="https://i.imgur.com/lANjCIE.gif" width="100%">
 
 🇧🇷<br/>
 
